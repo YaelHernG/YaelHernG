@@ -1,8 +1,20 @@
-## Hi there, I'm Yael
-I'm interested in system biology, mathematical modeling, inmmune diseases and machine learning.
+## Hi there, I'm Yael Hernandez !!
+Currently, I'm part of the Genomic Sciences degree program at the UNAM in the ENES Juriquilla. 🧬
 
-- 😄 Pronouns: He/him
-- 🎒 I am currently in the 4th semester of the undergraduate program in Genomic Science.
-- 📭 How to reach me: yaelhgs@gmail.com
+I am interested in systems biology to understand molecular systems linked to immunological processes. 
+
+I am passionate about mathematics, biology, and statistics.
+
+You can contact me at:
+
+• E-mail: yaelhgs@gmail.com
+
+• X(Twitter) : @yherngon
+
+• Bluesky:@yaelherng.bsky.social
+
+• Instagram: yayo.gleez
+
+
 
 -->
