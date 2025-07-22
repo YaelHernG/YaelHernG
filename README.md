@@ -13,7 +13,7 @@ You can contact me at:
 
 • Bluesky:@yaelherng.bsky.social
 
-• Instagram: yayo.gleez
+• [personal page](https://yaelherng.github.io/)
 
 
 
